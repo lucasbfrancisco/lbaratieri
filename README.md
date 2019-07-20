@@ -1,2 +1,0 @@
-# lbaratieri
-SITE PESSOAL
